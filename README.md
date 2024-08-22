@@ -17,4 +17,4 @@ _meu nome é_ **Luna**
 
 - desenhos animados. 🐱
 
-![moon]([https://tenor.com/pt-BR/view/moon-gif-23238655](https://tenor.com/pt-BR/view/gru-moon-gif-10973131198585528214)
+![](https://tenor.com/pt-BR/view/gru-moon-gif-10973131198585528214)
